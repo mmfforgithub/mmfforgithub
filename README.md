@@ -1,1 +1,1 @@
-Estudante do CEFET-MG e general das legiões Félix
+Estudante do CEFET-MG
