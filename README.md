@@ -1,1 +1,1 @@
-Estudante do CEFET-MG
+Estudante terceiranista do CEFET-MG
